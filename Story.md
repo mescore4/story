@@ -1,0 +1,1 @@
+First of all, I want to get something straight: this is a JOURNAL, not a diary. I know what is says on the cover but when Mum went out to buy this thing I  SPECIFICALLY said to make sure it didn't say "diary" on it.
